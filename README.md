@@ -1,2 +1,0 @@
-# dutch-politics
-bipolar disorder
